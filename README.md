@@ -1,11 +1,11 @@
 - 👋 Hi, I’m @ShadowOfSights
 - 👀 I’m interested in Coding Games, Crypto and Websites
-- 🌱 I’m currently learning Game Development in Unity
+- 🌱 I’m currently learning coding soft skills
 - 💞️ I’m looking to collaborate at a later time with people that would love to do a collab
 - 📫 How to reach me:
-- Discord: shadowofhell32
 - Email: calvinm2901@gmail.com
-- 😄 Pronouns: they/them
+- Discord: shadowofhell32
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I wanted to be an architect until i discovered the power of IT :3
 
 <!---
