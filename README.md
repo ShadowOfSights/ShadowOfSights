@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding soft skills
 - 💞️ I’m looking to collaborate at a later time with people that would love to do a collab
 - 📫 How to reach me:
-- Email: calvinm2901@gmail.com
+- Email: shadow.fire2232@gmail.com
 - Discord: shadowofhell32
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I wanted to be an architect until i discovered the power of IT :3
