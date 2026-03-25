@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - Email: shadow.fire2232@gmail.com
 - Discord: shadowofhell32
-- 😄 Pronouns: he/him
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I wanted to be an architect until i discovered the power of IT :3
 
 <!---
